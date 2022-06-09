@@ -1,0 +1,1 @@
+# Asus-ROG-STRIX-Z690-F
